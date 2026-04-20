@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> حبيبي في صمت الليل أناديك
+> أرى طيفك يرقص في خيالي
+> أريد أن أضيع في سحر عينيك
+> يا من أصبحت روحي وآمالي
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
